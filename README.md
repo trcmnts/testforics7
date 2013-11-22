@@ -8,3 +8,5 @@ yeeeey. :">
 
 so i say a little prayer, and hope my dreams will take me there, where the skies are blue.... - mnrckcptln
 
+
+ingat kayong lahat :) good luck sa 2nd semester :)
