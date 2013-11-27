@@ -12,5 +12,6 @@ so i say a little prayer, and hope my dreams will take me there, where the skies
 ingat kayong lahat :) good luck sa 2nd semester
 
 ango ti ngalmella ngalbe ngasama ngo singa losslynn panni ngaris - carmella dyosa (nga ba?)
+ango ngaman ngi mangring ngapodolan :)) 
 
 hope of all hearts - ra 
